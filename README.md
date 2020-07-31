@@ -13,5 +13,3 @@
 
 ### 如何加入狂神的小社区
 
-http://mp.weixin.qq.com/mp/homepage?__biz=Mzg2NTAzMTExNg==&hid=5&sn=5732bda552bcb476e55f678983edfb51&scene=18#wechat_redirect
-
